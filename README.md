@@ -6,6 +6,5 @@
 - Email：tttim2004@gmail.com
 - 學歷：[輔仁大學\經濟學系](https://www.economics.fju.edu.tw/)
 - 興趣：聽音樂、看電影、**旅遊**
-
 〈hr〉
 
